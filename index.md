@@ -102,7 +102,7 @@ We may update this Privacy Policy from time to time. Any changes will be posted 
 If you have any questions regarding this Privacy Policy, please contact:
 
 **NextFyn**
-Email: [nxtfyn@gmail.com](mailto:nxtfyn@gmail.com)
+Email: [damruvex@gmail.com](mailto:damruvex@gmail.com)
 
 ---
 
